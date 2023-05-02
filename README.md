@@ -1,1 +1,0 @@
-# soumitrimishra.github.io
